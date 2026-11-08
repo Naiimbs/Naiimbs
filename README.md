@@ -1,6 +1,6 @@
 <div align="center">
 
-# Naïm Bsili
+# Naiim Bsili
 
 **SENIOR UX/UI DESIGNER · PRODUCT DESIGNER · AI PRODUCT BUILDER**
 
